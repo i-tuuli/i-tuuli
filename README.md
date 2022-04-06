@@ -1,0 +1,1 @@
+- 👋 Hi there! I’m @i-tuuli and interested in data & science!
